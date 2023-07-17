@@ -21,5 +21,5 @@ Ta đến cùng muốn hay không dẫn bạo trên đảo núi lửa?"
 
 Link truyện:
 
-[Xoát Độ Thuần Thục Thì Mạnh Lên](https://tutruyenchu.com/truyen/Ta-do-Thi-Xoat-do-Thuan-Thuc-Thi-Manh-Len)
+[Xoát Độ Thuần Thục Thì Mạnh Lên](https://truyenchuhub.org/truyen/Ta-do-Thi-Xoat-do-Thuan-Thuc-Thi-Manh-Len)
 </div>
